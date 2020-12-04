@@ -1,0 +1,1 @@
+# hackintosh-fx-6300-rx-580-oc
